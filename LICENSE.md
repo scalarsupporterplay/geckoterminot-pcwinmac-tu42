@@ -1,4 +1,4 @@
-# 
+# Automático geckoterminal sniper bot modelos para Mac OS | Atualizado geckoterminal sniper bot modelos para PC Windows. Com controle de escorregamento e conectividade Web3 — otimizado para máximo desempeño en cada plataforma.
 
 
 
